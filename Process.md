@@ -1,0 +1,5 @@
+Bring 6-8 cups of water to boil,season it with 1 tablespoon salt and add the pasta.Allow the pasta to cook as per the cooking time mentioned on the package.When cooked,reserve about half a cup of the pasta water and then drain the pasta in the collander;
+While the pasta is cooking,warm up 1 tablespoon butter in a non stick skillet and add the chicken mini bites to it.Season with salt and pepper to taste.Cook them for 1-2 mins on each side until they are just opaque and set them aside;
+In the same skillet,add the remaining butter and cream and bring to a gentle simmer on very low heat.Add the minced garlic and let it simmer for 2 mins so the garlic cooks.Then season with salt and pepper and gently fold in the cheese until it melts into the sauce;
+Once the sauce is smooth and as thick as you would like,add the pasta and chicken to it and toss until everything is coated well.If the sauce is too thick for your liking , use some of the reserved pasta water to thin it out a bit;
+Serve this immediately.Garnish with italian sesasoning or some dried oregano and some chilli flakes if you want to make this a little spicy.Tada its served and enjoy it !!!
